@@ -1,1 +1,0 @@
-# Study-Indepedent-Orbit-Academy
